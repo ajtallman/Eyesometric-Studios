@@ -1,2 +1,0 @@
-# Eyesometric-Studios
-Product Reviews
